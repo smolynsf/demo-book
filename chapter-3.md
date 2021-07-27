@@ -1,3 +1,3 @@
 # Chap 3
 
-Hmmm...
+So you want to be a hero?
